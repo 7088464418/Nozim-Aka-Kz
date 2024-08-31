@@ -1,0 +1,2 @@
+# Nozim-Aka-Kz
+Nozimjon
